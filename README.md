@@ -9,4 +9,4 @@
 
 <p align="center"> kins r cool, i like the ones that have astigmatism and the ones that go woof
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/874280119710122004/1257722529309524110/Web_Photo_Editor.jpg?ex=668570e2&is=66841f62&hm=c55ebe73a6468338cec1eaeb832b85186e4edd2efd2ef7e419d17ad35393315d&=&format=webp&width=565&height=565"width="500"   height="500">
+<p align="center"> <img src="https://media.discordapp.net/attachments/874280119710122004/1257722529309524110/Web_Photo_Editor.jpg?ex=66988ea2&is=66973d22&hm=2ac446a7cdf466b128d3741c5d0ba87e679b52eabaea127896143e5aaf204857&=&format=webp&width=565&height=565"width="500"   height="500">
