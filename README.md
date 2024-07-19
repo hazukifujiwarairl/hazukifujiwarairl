@@ -5,7 +5,11 @@
 <p align="center"> $${\color{orange}ピカピカぴかりんじゃんけんポン ♪ キュアピース！}$$
 <p align="center"> heya! as u can see in my bio thing, my name is Mel, but you can also call me by the names of my kins (at least, if you know them.)
 
-<p align="center"> $${\color{RED}I BEG OF YOU}$$ please take a look at my carrd and strawpage! they will be more detailed and frequently updated than my github.
+<p align="center"> If you see me "Hazuki Fujiwara Approved" in your strawpage or whatever, that means you've been approved by me! Hooray!
+
+<p align="center"> <img src="https://media1.tenor.com/m/wTAUy1ic8Q8AAAAC/ongezellig-mymy.gif"width="200"   height="200">
+
+<p align="center"> $${\color{RED}I}$$  $${\color{RED}BEG}$$  $${\color{RED}OF}$$  $${\color{RED}YOU}$$ please take a look at my carrd and strawpage! they will be more detailed and frequently updated than my github.
 
 <p align="center"> kins r cool, i like the ones that have astigmatism and the ones that go woof
 
