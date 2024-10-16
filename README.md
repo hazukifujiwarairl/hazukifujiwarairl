@@ -9,5 +9,5 @@
 
 <p align="center"> <img src="https://media1.tenor.com/m/wTAUy1ic8Q8AAAAC/ongezellig-mymy.gif"width="200"   height="200">
 
-<p align="center"> $${\color{RED}I}$$  $${\color{RED}BEG}$$  $${\color{RED}OF}$$  $${\color{RED}YOU}$$ please take a look at my carrd and strawpage! they will be more detailed and frequently updated than my github.
+<p align="center"> $${\color{RED}I}$$  $${\color{RED}BEG}$$  $${\color{RED}OF}$$  $${\color{RED}YOU}$$ please take a look at my strawpage! it'll be more detailed and frequently updated than my github.
 
