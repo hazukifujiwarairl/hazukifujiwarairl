@@ -14,6 +14,7 @@
 <p align="left"> not a hyperfixation, still obsessed - hare + guu, jam jenny jam, loki irl, miraculous ladybug, ongezellig, danganronpa + more 
 <p align="right"> no dni!! i personally don't care much about who interacts since regardless of your dni list, people will still interact. however if things i do or things i am are described on your dni list, feel free to block me or if i stumble upon you first, i won't interact!!! (even if you do seem cool,,,)
  <p align="right"> but if you have beef with my buds don't talk to me >:l 
+  <p align="right"> also!! my strawpage isn't mobile friendly,,, mobile friendly ver coming soon!!
   <p align="center"> - - - - - - - - - - - - - - - - - - - - - -  - - - - - - - - - - - -
    <p align="center"> THAT'S ALL!! please read my strawpage for more info!!
     <p align="center"> gimmicks + asks appreciated!! ^w^
